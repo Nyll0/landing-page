@@ -1,2 +1,2 @@
 Landing paga
-Made by Philipp murawski
+Made by Philipp
